@@ -1,6 +1,6 @@
 # White Wine Bolognese
 
-Ingredients
+## Ingredients
 
 -   450g ground beef
     
