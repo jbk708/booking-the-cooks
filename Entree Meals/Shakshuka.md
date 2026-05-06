@@ -34,7 +34,7 @@
     
 -   Pinch of cayenne pepper, or more to taste
     
--   Pinch of sugar (optional)
+-   Pinch of sugar (very optional)
     
 -   Salt and pepper, to taste
     
@@ -43,7 +43,8 @@
 	- Realistically as many as you can fit while keeping a little bit of room between each. I like to drop the egg from on high so it takes up less surface area and pack in more eggs
     
 
-N.B. I like to do this in a cast iron pan. That said, large amounts of blended tomatoes and cast iron do not go super well together due to acidity so make sure the pan is seasoned before and know that you’ll likely need to season it afterwards.
+#### N.B.
+I like to do this in a cast iron pan. That said, large amounts of blended tomatoes and cast iron do not go super well together due to acidity so make sure the pan is seasoned before and know that you’ll likely need to briefly season it afterwards.
 
   ## Instructions
 
@@ -60,16 +61,17 @@ N.B. I like to do this in a cast iron pan. That said, large amounts of blended t
     
 
 6.  Before adding eggs check Spice taste/overall flavor and adjust as needed
+7. (Optional) If the spices are good but not blending well, add some veggie stock and continue to simmer for another 30-60 minutes
     
 
-7.  Note that as you’ll be reducing it for another 10 minutes or so that the flavors will intensify. This is more to correct imbalances like too much cumin.
-8.  (Optional) Add nutritional yeast before the eggs
+8.  Note that as you’ll be reducing it for another 10 minutes or so that the flavors will intensify. This is more to correct imbalances like too much cumin.
+9.  (Optional) Add nutritional yeast before the eggs
 	- After can work too but I like to cook it a little bit
     
 
-9.  Add Eggs here on medium/medium-low and cover – allow for just a little steam to escape. Simmer on medium-low (not enough to make the tomato base bubble anymore) until yolks are starting to cook then uncover
+10.  Add Eggs here on medium/medium-low and cover – allow for just a little steam to escape. Simmer on medium-low (not enough to make the tomato base bubble anymore) until yolks are starting to cook then uncover
     
-10.  (Optional) Garnish with Feta and/or Chopped Parsley
+11.  (Optional) Garnish with Feta and/or Chopped Parsley
 
 ### Iteration Notes
 Enjoy with something like a tart smoothie perhaps? I feel like I miss the acidity of the tomatoes just a tiny bit but am not inclined to add lemon juice or something to even out that taste – plus that would be even worse for a cast iron pan!
