@@ -53,27 +53,26 @@ I like to do this in a cast iron pan. That said, large amounts of blended tomato
 2.  Add diced Bell Pepper until softened and onions get enough caramelization
     
 3.  Add Tomatoes and Tomato Paste to pan. Add the initial Spice mixture here. Simmer over medium heat and get slightly less than half way through the reduction
-    
 
 4.  I like to blitz the can of San Marzano with a stick blender first
     
 5.  I sometimes need to add a little extra olive oil here in anticipation of step 6 as the tomatoes might burn otherwise when on that long simmer in step 6
     
-
 6.  Before adding eggs check Spice taste/overall flavor and adjust as needed
-7. (Optional) If the spices are good but not blending well, add some veggie stock and continue to simmer for another 30-60 minutes
+
+8. (Optional) If the spices are good but not blending well, add some veggie stock and continue to simmer for another 30-60 minutes
     
 
-8.  Note that as you’ll be reducing it for another 10 minutes or so that the flavors will intensify. This is more to correct imbalances like too much cumin.
-9.  (Optional) Add nutritional yeast before the eggs
+9.  Note that as you’ll be reducing it for another 10 minutes or so that the flavors will intensify. This is more to correct imbalances like too much cumin.
+
+11.  (Optional) Add nutritional yeast before the eggs
 	- After can work too but I like to cook it a little bit
-    
 
-10.  Add Eggs here on medium/medium-low and cover – allow for just a little steam to escape. Simmer on medium-low (not enough to make the tomato base bubble anymore) until yolks are starting to cook then uncover
+12.  Add Eggs here on medium/medium-low and cover – allow for just a little steam to escape. Simmer on medium-low (not enough to make the tomato base bubble anymore) until yolks are starting to cook then uncover
     
-11.  (Optional) Garnish with Feta and/or Chopped Parsley
+13.  (Optional) Garnish with Feta and/or Chopped Parsley
 
 ### Iteration Notes
 Enjoy with something like a tart smoothie perhaps? I feel like I miss the acidity of the tomatoes just a tiny bit but am not inclined to add lemon juice or something to even out that taste – plus that would be even worse for a cast iron pan!
 
-- A little lemon juice midway through the reduction was good.
+- A little lemon juice midway (10-15 min before adding vegetable stock/spice taste test) through the reduction was actually good.
